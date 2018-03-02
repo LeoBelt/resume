@@ -15,7 +15,7 @@
 
 - **Popeyes - Vista, CA**
 - *Cashier/Packer (July 2017 - Present)*
-- Dealing with unhappy customers on a daily basis, and constantly packing chicken at the speed of light. This requires me to adapt to high-pressure situations and develop excellent communication skills in order to difuse stressful situations.
+- Dealing with unhappy customers on a daily basis, and constantly packing chicken at the speed of light. This requires me to adapt to high-pressure situations and develop excellent communication skills in order to diffuse stressful situations.
 
 
 ### Skills
